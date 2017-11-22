@@ -1,0 +1,1 @@
+*Ya dumayu, torg sdes' ne umesten!*

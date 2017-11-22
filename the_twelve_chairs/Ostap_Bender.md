@@ -1,0 +1,1 @@
+~~Vino, jenshini i karti nam obespecheni.~~
